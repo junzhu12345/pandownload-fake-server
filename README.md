@@ -19,4 +19,4 @@ https://www.hostloc.com/thread-675311-1-1.html
 
 目前看来bdc token和启动并无太大联系，理论上此方法将一直可用
 # 想说的话
-**F\*\*k Baidu**
+**F\*\*k Baidu，Baidu is my son's s\*\*t！**
